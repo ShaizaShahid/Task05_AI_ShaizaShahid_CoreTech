@@ -1,0 +1,1 @@
+# Task05_AI_ShaizaShahid_CoreTech
